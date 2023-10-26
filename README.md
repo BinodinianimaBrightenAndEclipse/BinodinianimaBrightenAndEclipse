@@ -1,23 +1,24 @@
 Binodinianima Brighten and Eclipse Private Limited
 
-ABOUT US
-CIN: U85221DL2023PTC420051
+ABOUT US:-
 
-PAN: AALCB9364J
+Binodinianima Brighten and Eclipse Private Limited  serving individuals & organizations since 1988 as “Paritosh Dey and Sons HUF”-
 
-TAN: DELB27441B
+CIN: U85221DL2023PTC420051  
+PAN:  AALCB9364J  
+TAN: DELB27441B 
+LIN/SPS: 1–8290–7760–2 
+MSME UDYAM : UDYAM-DL-08-0059750
+VAT: 07107227397
+Shop & Establishment registration : 2023139076
 
-LIN/SPS: 1-8290-7760-2
+Discount : 05% to 10% discount on total cost (any service being opted as per requirement)
+Services : Educational, Informational & Designing  
+
+https://www.binodinianima.in/
 
 
-Established in the year 1988, "Paritosh Dey and Sons HUF" laid the foundation of our company's distinguished history. However, the year 1990 marked a pivotal moment in our journey, when a catastrophic fire incident not only claimed our business but also led to the tragic loss of lives and properties within the vicinity.
-
-In the aftermath of this profound adversity, a period of contemplation and restoration ensued. Emerging from this crucible of challenges, BINODINIANIMA BRIGHTEN AND ECLIPSE PRIVATE LIMITED emerged as the successor, specifically designed to serve the informational and educational domains. With a steadfast dedication to the dissemination of knowledge, we stand as a testament to resilience, embodying a commitment to the collective progress and enlightenment of society.
-
-Binodinianima Brighten and Eclipse Private Limited is a leading provider of creative solutions for writers and individuals seeking professional services.
-
-With a dedicated team of experts, we specialize in ghostwriting, logo design, letterhead creation, website developer and visiting card creation.
-
+Binodinianima Brighten and Eclipse Private Limited is a leading provider of creative solutions for organizations and individuals seeking professional services. With a dedicated team of experts, we specialize in ghostwriting, designing (logo,letterhead,visiting card,etc) and others (website developer, projects for students/corporates, etc).
 
 
 The Family's Creed:-We are family. We will fight as warriors and members of a family. We are professional. We will serve the people of the Indian civilization and live the Indian civilization's values. We will never quit. We will endure. We will never leave any fallen supporters. We will be disciplined, physically and mentally tough, skilled, trained and proficient in our tasks, events and activities. We all spend at least half of our day with our colleagues and many unknown people whom we come across. We all are spending half of our day with our unknown family.
@@ -62,17 +63,3 @@ TAKE OWNERSHIP / RESPONSIBILITY, NOT CREDIT AND HOLD TO HIGH STANDARDS
 
 BY CONTINUOUS LEARNING AND EMBRACING UNIQUENESS / CONSTANT CHANGE
 
-
-
-Services/Products :
-Binodinianima Brighten and Eclipse Private Limited is a leading provider of creative solutions for writers and individuals seeking professional services.
-
-With a dedicated team of experts, we specialize in ghostwriting, logo design, letterhead creation , visiting card creation and others (website).
-
-
-Discount : 05% to 10% discount on total cost (any service being opted as per requirement)
-
-
-Binodinianima Brighten and Eclipse Private Limited
-
-https://www.binodinianima.in/
