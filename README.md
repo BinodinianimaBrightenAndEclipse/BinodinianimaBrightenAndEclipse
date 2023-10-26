@@ -4,15 +4,23 @@ ABOUT US:-
 
 Binodinianima Brighten and Eclipse Private Limited  serving individuals & organizations since 1988 as “Paritosh Dey and Sons HUF”-
 
-CIN: U85221DL2023PTC420051  
+CIN: U85221DL2023PTC420051 
+
 PAN:  AALCB9364J  
+
 TAN: DELB27441B 
+
 LIN/SPS: 1–8290–7760–2 
+
 MSME UDYAM : UDYAM-DL-08-0059750
+
 VAT: 07107227397
+
 Shop & Establishment registration : 2023139076
 
+
 Discount : 05% to 10% discount on total cost (any service being opted as per requirement)
+
 Services : Educational, Informational & Designing  
 
 https://www.binodinianima.in/
