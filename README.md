@@ -25,6 +25,7 @@ The Family's Creed:-We are family. We will fight as warriors and members of a fa
 
 
 OUR MISSION  —  At BINODINIANIMA BRIGHTEN AND ECLIPSE PRIVATE LIMITED, our mission is to empower individuals worldwide to reconnect with their roots. We are dedicated to creating an inclusive platform accessible to all, regardless of age, nationality, relationship, or skill set. This mission guides our decisions and actions, aiming to inspire moments of optimism and deliver tangible value back to our origins.
+
 OUR VISION — We are committed to achieving emotional and intellectual fulfilment while leaving a positive mark on the world. By uncovering latent information and facilitating a seamless transition to our roots, BINODINIANIMA BRIGHTEN AND ECLIPSE PRIVATE LIMITED aims to intersect knowledge and make it accessible to all.
 
 CORE VALUES — 
